@@ -4,17 +4,17 @@
 <meta charset="utf-8">
 <meta http-equiv="X-UA-Compatible" content="IE=edge">
 <meta name="viewport" content="width=device-width, initial-scale=1.0">
-	<title>Chandigarh Escorts Romina Model Escort Service in Chandigarh</title>
-	<meta name="description" content="Unlock the door to boundless fun and pleasure with Chandigarh escorts. Amazing night with special independent Romina model escort service in Chandigarh;" />
-	<link rel="canonical" href="https://bestescortsnearme.netlify.app">
-	<meta name="keywords" content="Chandigarh escort service, Chandigarh call girls, Chandigarh Escorts Service, escorts in Chandigarh, Chandigarh escorts, call girl in Chandigarh, escort in Chandigarh, Chandigarh college girl escorts." />
-    <meta property="og:title" content="Chandigarh Escorts Romina Model Escort Service in Chandigarh" />
-    <meta property="og:description" content="Unlock the door to boundless fun and pleasure with Chandigarh escorts. Amazing night with special independent Romina model escort service in Chandigarh;" />
-    <meta property="og:site_name" content="girlnumberlist" />
-    <meta property="og:url" content="https://bestescortsnearme.netlify.app" />
+	<title>Party DJ Services at best price in Ghanaur | Call: 9914566964</title>
+	<meta name="description" content="Ekamsonadjlinks offering Party DJ Services in Ghanaur, Punjab. Get best quotes, view photos and find contact details | Call: 9914566964." />
+	<link rel="canonical" href="https://ekamsonadjlinks.netlify.app/">
+	<meta name="keywords" content="Ghanaur dj service, best dj service in ghanaur" />
+    <meta property="og:title" content="Party DJ Services at best price in Ghanaur | Call: 9914566964" />
+    <meta property="og:description" content="Ekamsonadjlinks offering Party DJ Services in Ghanaur, Punjab. Get best quotes, view photos and find contact details | Call: 9914566964." />
+    <meta property="og:site_name" content="ekamsonadjlinks" />
+    <meta property="og:url" content="https://ekamsonadjlinks.netlify.app" />
     <meta property="og:type" content="website" />
     <meta property="og:locale" content="en_IN" />
-    <meta property="og:image" content="http://www.geocities.ws/callgirlnearme/images/call-girl-1.webp" />
+    <meta property="og:image" content="7CA754C9-A6D9-417F-9244-72C3DB7989C3" />
     <meta name="twitter:card" content="summary_large_image">
     <meta name="twitter:site" content="@girlnumberlist">
     <meta name="twitter:title" content="Chandigarh Escorts Romina Model Escort Service in Chandigarh">
